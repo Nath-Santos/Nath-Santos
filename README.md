@@ -1,0 +1,3 @@
+- 👋 Hi :) 
+- 🌱 Cursando Téc. em informática
+- 📫 nathmarcalsantos@gmail.com
